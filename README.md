@@ -9,4 +9,4 @@ Countries were clustered based on the percentage of users by country that held a
 
 Overall, European countries in the first group were overall more engaged in the political system having more trust in their legislative and parliament government and finding it easier to make political decisions than countries in groups two and three.
 
-Read Here: 
+Read Here: https://beyondtheaverage.wordpress.com/2018/11/13/political-views-and-employment-booms-and-busts-in-the-european-union/
